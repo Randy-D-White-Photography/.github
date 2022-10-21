@@ -1,4 +1,4 @@
-## Welcome to Randy D White PPhotography 👋
+## Welcome to Randy D White Photography 👋
 
 <!--
 
